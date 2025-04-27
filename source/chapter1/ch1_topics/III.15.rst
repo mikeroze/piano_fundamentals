@@ -166,7 +166,7 @@ difference between creating humor out of a mistake or recovering nicely from it
 or letting that mistake look like a disaster that mars the entire performance.
 Performance training must include lessons on how to react to various
 circumstances. It is important, early in a student's career, to play easy
-pieces that can be performed without nervousness, Eeven one such experience can
+pieces that can be performed without nervousness, Even one such experience can
 provide the existence proof that performing without nervousness is possible.
 That single experience can influence your performance attitude for the rest of
 your life. The best way to guarantee such a flawless performance is to develop
