@@ -318,7 +318,7 @@ for beginners, it does not pay to embark upon an intensive reading program just
 to be able to read (because the fingers can't play them anyway), although the
 initial slow reading speed can be awfully frustrating to both teacher and
 student. It is actually beneficial to allow the student to struggle through
-this slow reading stage. ``A major`` learning trick in piano pedagogy is to learn
+this slow reading stage. A useful learning trick in piano pedagogy is to learn
 several skills simultaneously, especially because many of them take a long time
 to learn. Thus memorizing, reading, theory, etc., can all be learned
 simultaneously, saving you a lot of time in the long run. Trying to learn one
@@ -447,7 +447,7 @@ attitude is ingrained in youth, they will carry it into adulthood. The truth
 should be the exact opposite. Performance should be the final goal, the final
 reward for all the hard work. It is the demonstration of the ability to sway an
 audience, the ability to convey the grandest designs of the greatest musical
-geniuses that every lived. Secure mental play is the single most effective
+geniuses that ever lived. Secure mental play is the single most effective
 method for reducing stage fright.
 
 One way to introduce students to performing at recitals is to hold mock
