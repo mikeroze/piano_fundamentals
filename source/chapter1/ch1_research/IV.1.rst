@@ -3,7 +3,7 @@
 1. Can We All Be Mozarts?
 -----------------------------------
 
-The answer is a surprising, “Probably yes!”. In order to find the answers, we
+The answer is a surprising, “Probably yes!” In order to find the answers, we
 need to examine what Mozart did and how he did them. He had technique, great
 memory, absolute pitch, and could compose. This book covers the first three,
 and the last item is partly covered by Mental Play. In fact, most pianists
